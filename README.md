@@ -1,2 +1,2 @@
-# Enidmesj
+# Enidmesi
 Ölümlü yaşam
